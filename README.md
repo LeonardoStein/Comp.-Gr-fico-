@@ -8,3 +8,5 @@ Em resumo, o estudo é um investimento valioso que pode melhorar significamente 
 
 ![](https://tenor.com/pt-BR/view/hungry-cat-food-bowl-wheres-my-food-give-me-food-gif-17416211.gif)
 
+![](https://tenor.com/pt-BR/view/south-carolina-wave-mascot-bird-gif-8108807.gif)
+
