@@ -13,3 +13,5 @@ Em resumo, o estudo é um investimento valioso que pode melhorar significamente 
 ![](https://tenor.com/pt-BR/view/dance-dancing-dancing-cat-cat-cat-dance-gif-4990417705814603993.gif)
 
 ![](https://tenor.com/pt-BR/view/dancing-dog-ai-poodle-gif-3842686009992743035.gif) 
+
+![](https://tenor.com/pt-BR/view/suspicious-eyes-chicken-squinting-despicable-me-gif-13584722.gif)
