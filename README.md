@@ -6,4 +6,4 @@
 
 Em resumo, o estudo é um investimento valioso que pode melhorar significamente nessas oportunidades na vida. Ao nos dedicarmos ao aprendizado contínuo, estamos investindo em nosso próprio sucesso e enriquecendo nossa experiência de vida de maneiras inimagináveis
 
-![](https://tenor.com/pt-BR/view/hungry-cat-food-bowl-wheres-my-food-give-me-food-gif-17416211)
+![](https://tenor.com/pt-BR/view/hungry-cat-food-bowl-wheres-my-food-give-me-food-gif-17416211.gif)
