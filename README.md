@@ -17,8 +17,9 @@ Em resumo, o estudo é um investimento valioso que pode melhorar significamente 
 ![](https://tenor.com/pt-BR/view/suspicious-eyes-chicken-squinting-despicable-me-gif-13584722.gif)
 
 Comando de Fórmulas
+
 $\sqrt25$
 
 $\sqrt36$ = 6
 
-$\sqrt3x+8$-1
+$\sqrt(3x+8)$-1
